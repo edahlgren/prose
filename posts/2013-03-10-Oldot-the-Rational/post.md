@@ -1,5 +1,5 @@
 title: Oldot the Rational
-author: edahlgren
+author: Erin Dahlgren
 
 In a certain district in San Francisco which I do not wish to name, there lived a gentleman.  His household consisted of himself and his possessions, and sometimes a tabby cat --- of the ugliest, large eyed variety --- that he did not own but would find trapped in his apartment due to the negligence of his neighbors.
 
