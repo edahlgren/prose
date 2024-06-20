@@ -21,6 +21,6 @@ That morning Oldot's office was as excellent to him as it always was, for there 
 
 No one bothered him today, not even to ask how was "doing" --- which he found a superficial question.  So he settled into his customized ergnomic seat thinking how on all accounts this morning could still turn out to be excellent.
 
-One might notice that there would be no point in telling the reader of this morning if it turned out to be such an oridinary one.  Unless of course the goal is to send the reader down the rabbit hole wondering why they ever got so small and how they ended up talking with caterpillars.  No, this morning was definitely not an ordinary one, and finally at half past eleven, just as the company email had been sent out with a lunch announcement of seasoned squirrel food, did the event of our interest take place.
+One might notice that there would be no point in telling the reader of this morning if it turned out to be such an ordinary one.  Unless of course the goal is to send the reader down the rabbit hole wondering why they ever got so small and how they ended up talking with caterpillars.  No, this morning was definitely not an ordinary one, and finally at half past eleven, just as the company email had been sent out with a lunch announcement of seasoned squirrel food, did the event of our interest take place.
 
 ...
